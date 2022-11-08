@@ -1,1 +1,1 @@
-`InvizHer - Updated Version`
+`InvizHer - The Updated Version`
